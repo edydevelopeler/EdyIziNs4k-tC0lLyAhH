@@ -1,1 +1,1 @@
-# ☁️ *Izin dulu masbro* ☁️
+# ☁️ *Kita Semua Edy* ☁️
